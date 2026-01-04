@@ -11,9 +11,3 @@ killer!
 
 
 
-
-- <img src='https://files.catbox.moe/t07nkb.gif' />
-
-<b> break my legs, hurt me bad, make me cry! <br>
-
-
