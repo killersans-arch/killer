@@ -1,6 +1,7 @@
 killer!
--<img src='https://files.catbox.moe/ezaaso.gif'
-- 
+
+- <img src='https://files.catbox.moe/ezaaso.gif'
+
 <b>"it was fun playing the good guy." <br>
 
 - <img src='https://files.catbox.moe/ukd959.gif'
