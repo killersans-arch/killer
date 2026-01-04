@@ -1,6 +1,8 @@
 killer!
 
 - <img src='https://files.catbox.moe/ezaaso.gif'
+- 2gif.mp4
+
 
 <b>"it was fun playing the good guy." <br>
 
